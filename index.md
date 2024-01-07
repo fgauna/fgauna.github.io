@@ -1,3 +1,3 @@
 # Page professionnelle
 
-Joyeux Noël
+I give this plugin two :+1:!
